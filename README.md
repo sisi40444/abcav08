@@ -20,4 +20,4 @@
 结语  
 日本AV平台通过不断优化和技术升级，为用户带来前所未有的观影自由。无论是资源丰富度还是播放质量，优质平台都值得信赖。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/sisi40444/abcav08 )</span>
